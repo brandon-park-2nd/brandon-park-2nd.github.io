@@ -1,1 +1,0 @@
-# brandon-park-2nd.github.io
